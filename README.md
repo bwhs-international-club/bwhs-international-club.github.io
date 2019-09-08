@@ -1,1 +1,0 @@
-# bwhs-international-club.github.io
